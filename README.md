@@ -1,0 +1,7 @@
+-Erik
+-Estudante 🎓
+- Sexo = Masculino
+- Gruzeiro 2️⃣4️⃣4️⃣
+- Rolezeiro See More
+-É os D😝 See More
+-JOGADOR CARO⚽
